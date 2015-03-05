@@ -1,3 +1,3 @@
 # primerapagina
 actividad 03-03-2015
-XXX
+XXXXXXXXXX
